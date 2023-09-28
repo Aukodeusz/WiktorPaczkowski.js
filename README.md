@@ -1,4 +1,4 @@
 # Czerwone buty
 
-## Czarny kapelusz
+## Czarny kapeluszz
 
